@@ -1,6 +1,6 @@
 
-[https://rainworlddownpour.carrd.co/](https://rainworlddownpour.carrd.co/)\
-[https://x.com/boombloxxed](https://x.com/boombloxxed)\
+[https://rainworlddownpour.carrd.co/](https://rainworlddownpour.carrd.co/)
+[https://x.com/boombloxxed](https://x.com/boombloxxed)
 
  check my links PLEASE, more information.
  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎ 
