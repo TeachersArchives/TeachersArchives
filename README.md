@@ -41,11 +41,7 @@ Please view my [CARRD](https://rainworlddownpour.carrd.co/) for my main informat
 *˗ˏˋ **♡** ˎˊ˗*
 <div></div>
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31mwtvkn4cvdlvkh2nu2nyq7q57m&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mwtvkn4cvdlvkh2nu2nyq7q57m&cover_image=true&theme=spotify-embed&show_offline=true&background_color=43112d&interchange=true&profanity=true&bar_color=ffff87&bar_color_cover=false&mode=dark">
-  </a>
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mwtvkn4cvdlvkh2nu2nyq7q57m&cover_image=true&theme=spotify-embed&show_offline=true&background_color=43112d&interchange=false&profanity=true&mode=dark&bar_color=ffff87&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31mwtvkn4cvdlvkh2nu2nyq7q57m&redirect=true)
 
 <div></div>
 
