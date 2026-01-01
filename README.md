@@ -20,7 +20,7 @@
 ***
  <div align="center">
 
- ![](https://komarev.com/ghpvc/?username=boombloxxed&style=plastic&color=blue&label=Receptions.)
+ ![](https://komarev.com/ghpvc/?username=boombloxxed&style=plastic&color=red&label=[MESSAGES.RECIEVED] )
   
  ‎  ‎  ![♡](https://predisasters.neocities.org/toyhouse/Spearmaster_select_screen_layer_(Messenger).png)
 
@@ -29,9 +29,9 @@
 ***‎@boombl****oxxed*//!~*In*do~! + Pep!! ✨\
 ~**1**6~
 
-She//Her ミ☆ **T**hey/Them
+She// ミ☆ **A**ny
 
-I go by Indo primarily, I also like if you call me Quirrel!
+Hello!! My primary name I go by is Indo, But I also like if you call me Seven Red Suns or Quirrel!! maybe even No Significant Harassment?👀
 ‎‎I'm very shy, please Whisper if you want to talk to me!
 
 *˗ˏˋ **♡** ˎˊ˗*
@@ -41,23 +41,21 @@ PONY TOWN STUFF
 
 **BOUNDARIES**
 
-› ***touch*** ⋮ anyone, I don't care really im not someone who cares ab that
-› ***cuddle*** ⋮ friends, No strangers please.
+› ***cuddle*** ⋮ friends
 › ***interactions*** ⋮ anyone, but sometimes I may be on a different tab, so you can sit near me and whisper me to try and get my attention, I often don't look at chat unless my full attention is on ponytown, be patient.
-› ***flirting*** ⋮ Jokingly please!
-› ***dms/whispers*** ⋮ anyone, feel free to. I don't bite I promise!!
+› ***dms/whispers*** ⋮ anyone, I don't bite I promise!!
 
 ***
 **STATUSES**
 
 ***🟢 Online***:
-Free to talk to me, but I might be on discord and it could take a minute for me to answer.
+Free to talk to me, but I might be a little busy, be patient!
 
 ***🌙 Away***:
-Likely away from my computer or doing something on a seperate tab, feel free to whisp, I will try to read it when I get back.
+Likely AFK or doing something on a seperate tab, feel free to whisp, I will try to read it when I get back or if im already there lol
 
 ***⛔ Busy***:
 AFK and will rarely respond.
 
 ***💬 Looking for chat***:
-PLEASE TALK TO ME!! I wanna talk to some new people, I'm just a little shy when it comes to staring conversations and will usually linger around people I wanna talk to.
+PLEASE TALK TO ME!! I wanna talk to some new people, I'm just a shy person and often cannot begin a conversation myself.
