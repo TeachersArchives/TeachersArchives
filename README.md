@@ -1,7 +1,6 @@
 
-[https://teachersarchives.straw.page/](https://teachersarchives.straw.page/)\
+[https://rainworlddownpour.carrd.co/](https://rainworlddownpour.carrd.co/)\
 [https://x.com/boombloxxed](https://x.com/boombloxxed)\
-[https://guns.lol/TeachersArchives](https://guns.lol/TeachersArchives)
 
  check my links PLEASE, more information.
  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎  ‎   ‎  ‎ 
