@@ -20,7 +20,9 @@
 ***
  <div align="center">
 
- ![](https://komarev.com/ghpvc/?username=boombloxxed&style=plastic&color=red&label=[MESSAGES.RECIEVED] )
+ ![](https://komarev.com/ghpvc/?username=boombloxxed&style=for-the-badge&color=red&abbreviated=true&label=[MESSAGES.RECIEVED] )
+
+🔅
   
  ‎  ‎  ![♡](https://predisasters.neocities.org/toyhouse/Spearmaster_select_screen_layer_(Messenger).png)
 
